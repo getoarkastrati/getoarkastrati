@@ -9,4 +9,4 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about anything 
 - 📫 How to reach me: ig1:getoar.kastratii ig2:getoar_photography
-- ⚡ Fun fact: i photograph cars
+- ⚡ Fun fact: I photograph cars
